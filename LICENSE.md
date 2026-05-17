@@ -1,4 +1,4 @@
-# 
+# VIP Vegas Pro for PC scripts is the best Vegas Pro for PC scripts with virtual-camera and title-animation. Safe, reliable, and optimized for maximum performance.
 
 
 
